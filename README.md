@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Mernv
+- 👀 I’m interested in Video Editing and I also Play Video Games Sometimes
+- 🌱 I’m currently learning on How to Draw on Digital Platform I am also learning on how to code
+- 💞️ I’m looking to collaborate on more people in the future
+- 📫 How to reach me ( @NVMeru on Twitter )
+- 
